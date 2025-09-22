@@ -32,7 +32,7 @@
 
 ## 🌐 Connect with Me
 - 💼 [LinkedIn](https://www.linkedin.com/in/YOUR-LINK)  
-- 📧 Reach me at: **your-email@example.com**
+- 📧 Reach me at: **reymarchinc@gmail.com**
 
 ---
 
