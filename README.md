@@ -31,7 +31,7 @@
 ---
 
 ## 🌐 Connect with Me
-- 💼 [LinkedIn](https://www.linkedin.com/in/YOUR-LINK)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/mhdrayhan)  
 - 📧 Reach me at: **reymarchinc@gmail.com**
 
 ---
